@@ -1,4 +1,4 @@
-### Hi there 👋
+#### Please don't use GitHub as a way of sending my job offers. Thank you in advance 💕
 
 <!--
 **rosesz/rosesz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
